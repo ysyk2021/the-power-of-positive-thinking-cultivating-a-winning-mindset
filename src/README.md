@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction:
-
 Positive thinking is a powerful tool that can help individuals overcome challenges, achieve their goals, and improve their overall well-being. A positive mindset can help us to approach life's obstacles with confidence and optimism, rather than fear and doubt.
 
 In this book, we will explore the power of positive thinking and how it can be cultivated to develop a winning mindset. We will discuss various aspects of positive thinking, including its impact on mental health, relationships, and success.
