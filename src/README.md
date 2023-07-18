@@ -12,5 +12,4 @@ It is important to remember that developing a positive mindset takes time and ef
 
 In the following chapters, we will explore the different ways in which positive thinking can transform your life and provide actionable strategies for cultivating a winning mindset. Let's begin the journey towards a happier, more fulfilling life through the power of positive thinking.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
