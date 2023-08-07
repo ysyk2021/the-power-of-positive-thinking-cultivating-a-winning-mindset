@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of Positive Thinking](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding the Benefits of Positive Thinking](chapter-2.md)
   - [Definition and Characteristics of Positive Thinking](chapter-2-1.md)
   - [The Benefits of Positive Thinking on Mental Health and Well-being](chapter-2-2.md)
