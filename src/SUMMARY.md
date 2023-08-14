@@ -25,7 +25,6 @@
   - [Common Obstacles to Positive Thinking](chapter-7-1.md)
   - [Strategies for Overcoming Challenges](chapter-7-2.md)
 - [Chapter 8: Case Studies of Successful Application of Positive Thinking](chapter-8.md)
-  - [Real-life Examples of Individuals who have Successfully Applied Positive Thinking in their Lives](chapter-8-1.md)
 - [Chapter 9: Ethical Considerations in Positive Thinking](chapter-9.md)
   - [Understanding Ethical Guidelines and Standards](chapter-9-1.md)
   - [Balancing Individual and Organizational Interests](chapter-9-2.md)
