@@ -1,5 +1,3 @@
-Building Positive Relationships with Others
-===============================================================================================================
 
 Positive thinking can have a significant impact on our interactions with others, leading to stronger and more positive relationships. In this chapter, we will explore strategies for applying positive thinking in daily life to build positive relationships with others.
 

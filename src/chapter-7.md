@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Positive Thinking
-====================================================
 
 Positive thinking can be challenging, especially during difficult times. However, it is crucial to overcoming obstacles and achieving success. In this chapter, we will explore common obstacles to positive thinking and strategies for overcoming them.
 

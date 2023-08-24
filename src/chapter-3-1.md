@@ -1,5 +1,3 @@
-Identifying Negative Thought Patterns
-==============================================
 
 In this chapter, we will explore the importance of recognizing negative thought patterns and how they can hinder our journey towards cultivating a winning mindset. It is crucial to understand that our thoughts have a significant impact on our emotions, actions, and overall well-being. By identifying and addressing negative thought patterns, we can take control of our thinking and pave the way for positive change in our lives.
 

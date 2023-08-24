@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Positive Thinking
-=================================================
 
 Key Performance Indicators (KPIs) for Measuring Success
 -------------------------------------------------------

@@ -1,5 +1,3 @@
-Chapter 9: Ethical Considerations in Positive Thinking
-======================================================
 
 Positive thinking can be a powerful tool for personal and professional growth, but it also requires careful consideration of ethical guidelines and standards. In this chapter, we will explore the ethical considerations involved in positive thinking, including understanding ethical guidelines and standards, balancing individual and organizational interests, and addressing potential risks and consequences.
 

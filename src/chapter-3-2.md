@@ -1,7 +1,3 @@
-Techniques for Developing Positive Self-Talk
-=====================================================
-
-
 
 In this chapter, we will explore various techniques that can help you develop positive self-talk. Positive self-talk is a powerful tool that can enhance your mindset and improve your overall well-being. By consciously cultivating positive thoughts and internal dialogue, you can overcome self-doubt, boost your confidence, and achieve personal growth.
 

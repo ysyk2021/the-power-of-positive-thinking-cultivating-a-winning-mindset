@@ -1,5 +1,3 @@
-Chapter 3: The Psychology of Positive Thinking
-==============================================
 
 In this chapter, we will explore the psychology behind positive thinking and how it can help individuals cultivate a winning mindset. We will discuss identifying negative thought patterns and techniques for developing positive self-talk. We will also delve into visualization and other techniques for cultivating a positive mindset.
 

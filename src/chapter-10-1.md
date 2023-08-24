@@ -1,5 +1,3 @@
-Recap of Key Points
-===========================================
 
 In this book, we have explored the power of positive thinking to cultivate a winning mindset. Throughout the book, we have presented various strategies and tips for adopting a positive attitude and maintaining positivity in everyday life. In this final chapter, we will recap the key points discussed in the book.
 

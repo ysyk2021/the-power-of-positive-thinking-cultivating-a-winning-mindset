@@ -1,4 +1,3 @@
-# The Benefits of Positive Thinking on Mental Health and Well-being
 
 In a world filled with challenges and uncertainties, cultivating a positive thinking mindset can have profound effects on our mental health and overall well-being. This chapter explores the numerous benefits of positive thinking and how it contributes to promoting mental health and well-being.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the power of positive thinking to cultivate a winning mindset. We have discussed the benefits of positive thinking and provided tips and strategies for adopting a positive mindset. In this final chapter, we will recap the key points and provide some final thoughts on The Power of Positive Thinking: Cultivating a Winning Mindset.
 

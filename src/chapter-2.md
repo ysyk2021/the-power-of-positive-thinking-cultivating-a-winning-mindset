@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of Positive Thinking
-==========================================================
 
 Positive thinking can have a significant impact on our mental health and overall well-being. In this chapter, we will explore the definition and characteristics of positive thinking, the benefits of positive thinking on mental health and well-being, and common myths about positive thinking.
 

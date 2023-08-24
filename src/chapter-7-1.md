@@ -1,5 +1,3 @@
-Common Obstacles to Positive Thinking
-================================================
 
 Positive thinking is a powerful mindset that can transform lives and lead to a winning mindset. However, there are common obstacles that can hinder our ability to maintain positive thinking. This chapter explores some of these obstacles and provides strategies for overcoming them, allowing us to cultivate and sustain a positive mindset.
 

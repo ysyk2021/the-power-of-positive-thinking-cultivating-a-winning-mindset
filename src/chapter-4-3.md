@@ -1,5 +1,3 @@
-Creating a Positive Work Environment
-========================================================================================================
 
 Creating a positive work environment is essential for cultivating a winning mindset and achieving success. In this chapter, we will explore strategies for applying positive thinking in daily life, specifically in the context of creating a positive work environment.
 

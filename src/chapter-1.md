@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Importance of Positive Thinking
 -------------------------------

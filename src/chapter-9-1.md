@@ -1,5 +1,3 @@
-Understanding Ethical Guidelines and Standards
-======================================================================================================
 
 Positive thinking can be a powerful tool for personal growth and success, but it's important to approach this mindset with ethical considerations in mind. In this chapter, we will explore ethical guidelines and standards to consider when practicing positive thinking.
 
