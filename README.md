@@ -1,3 +1,6 @@
+# The Power of Positive Thinking: Cultivating a Winning Mindset
+
+Book Link: [https://zhengpublishing.com/the-power-of-positive-thinking-cultivating-a-winning-mindset/](https://zhengpublishing.com/the-power-of-positive-thinking-cultivating-a-winning-mindset/)
 
 Positive thinking is a powerful tool that can help individuals overcome challenges, achieve their goals, and improve their overall well-being. A positive mindset can help us to approach life's obstacles with confidence and optimism, rather than fear and doubt.
 
